@@ -5,3 +5,5 @@ Depois da pausa de uma semana, a #instaviruslive vem com uma pegada diferente e 
 
 A live vai ser transmitida no [instagram do Professor Leandro Gurgel](https://instagram.com/leandro_gurgel?igshid=1h20upg9srv57)
 
+![](https://github.com/ThiagoValentimMarques/rn2606/blob/master/banner.jpeg?raw=true)
+
